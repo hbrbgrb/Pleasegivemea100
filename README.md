@@ -19,9 +19,9 @@ And all the time I spent would have been wasted
 
 But you are reading this
 
-SO it wasnt a waste
+So it wasn't a waste
 
-I'm actually typing this at 2:16 AM Sunday May 26
+I'm actually typing this at 2:16 AM Sunday, May 26
 
 Motivated by your words to deliver a 'Benny level project'
 
@@ -39,13 +39,13 @@ But you probably won't
 
 I'm procrastinating doing the actual work for this flyer by typing this
 
-So by reading this are you helping?
+So by reading this are you helping my procrastination?
 
 Because if I think you're going to read this I'm going to keep typing
 
-I wouldn't type if you wouldn't read it
+I wouldn't keep typing if you wouldn't read it
 
-But are you reading
+But are you reading this?
 
 Idk
 
