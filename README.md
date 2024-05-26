@@ -9,4 +9,20 @@ Tohavemadesuchentertainingcontentforyourclass
 
 Sothankyou
 
-Butforthatchecktheemail
+Butthatsanissuefortheemail
+
+Sopleaseemailme
+
+Ifyou'reevenreadingthisatall
+
+WhichIappreciateifyouare
+
+Butifnotthatsokay
+
+Butitalsodoesnt
+
+Noneedtokeepreading
+
+Itsover
+
+Thankyou
