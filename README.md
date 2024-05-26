@@ -1,26 +1,64 @@
 # Pleasegivemea100
-Iwouldreallylikeit
+I would really like it
 
-Butifnotthat'sokay
+But if not that's okay
 
-I'mjustgratefulfortheopportunity
+I'm just grateful for the opportunity
 
-Tohavemadesuchentertainingcontentforyourclass
+To have made such entertaining content for your class
 
-Sothankyou
+So thank you
 
-Butthat'sanissuefortheemail
+If you're even reading this at all
 
-Sopleaseemailme
+Which I guess you have to be
 
-Ifyou'reevenreadingthisatall
+Otherwise you would never know this existed
 
-WhichIappreciateifyouare
+And all the time I spent would have been wasted
 
-Butifnotthat'sokay
+But you are reading this
 
-Noneedtokeepreading
+SO it wasnt a waste
 
-It'sover
+I'm actually typing this at 2:16 AM Sunday May 26
 
-Thankyou
+Motivated by your words to deliver a 'Benny level project'
+
+So I created a website and email
+
+I think that embodies 'Benny level project' pretty well
+
+I've discovered that I can talk about nothing for a really long time
+
+I wouldn't blame you if you stopped reading this 10 lines ago
+
+But you might miss out on some top tier super secret content
+
+But you probably won't
+
+I'm procrastinating doing the actual work for this flyer by typing this
+
+So by reading this are you helping?
+
+Because if I think you're going to read this I'm going to keep typing
+
+I wouldn't type if you wouldn't read it
+
+But are you reading
+
+Idk
+
+Maybe
+
+Ok
+
+Its 
+
+Over
+
+Thanks for reading this
+
+I know it was very long and boring
+
+But I really do appreciate it
