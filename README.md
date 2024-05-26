@@ -3,7 +3,7 @@ Iwouldreallylikeit
 
 Butifnotthatsokay
 
-I'mjustgratefulfortheoopportunity
+I'mjustgratefulfortheopportunity
 
 Tohavemadesuchentertainingcontentforyourclass
 
