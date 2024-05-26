@@ -19,8 +19,6 @@ WhichIappreciateifyouare
 
 Butifnotthatsokay
 
-Butitalsodoesnt
-
 Noneedtokeepreading
 
 Itsover
