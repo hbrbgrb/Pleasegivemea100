@@ -1,7 +1,7 @@
 # Pleasegivemea100
 Iwouldreallylikeit
 
-Butifnotthatsokay
+Butifnotthat'sokay
 
 I'mjustgratefulfortheopportunity
 
@@ -9,7 +9,7 @@ Tohavemadesuchentertainingcontentforyourclass
 
 Sothankyou
 
-Butthatsanissuefortheemail
+Butthat'sanissuefortheemail
 
 Sopleaseemailme
 
@@ -17,10 +17,10 @@ Ifyou'reevenreadingthisatall
 
 WhichIappreciateifyouare
 
-Butifnotthatsokay
+Butifnotthat'sokay
 
 Noneedtokeepreading
 
-Itsover
+It'sover
 
 Thankyou
